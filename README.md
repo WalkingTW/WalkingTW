@@ -14,20 +14,22 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 . . . . . . . . Èþïk Lï§† . . . . . . . .
 
-⌀ @Phantomhiveds 
+⌀ [@Phantomhiveds](https://github.com/Phantomhiveds)
 
-⌀ @Michael-Afton1983 
+⌀ [@Michael-Afton1983](https://github.com/Michael-Afton1983)
 
-⌀ @AZURETlME 
+⌀ [@AZURETlME](https://github.com/AZURETlME)
 
-⌀ @greenbeanx3 
+⌀ [@greenbeanx3](https://github.com/greenbeanx3)
 
-⌀ @dazaku  
+⌀ [@dazaku](https://github.com/dazaku)
 
-⌀ @THE-BASILICA 
+⌀ [@THE-BASILICA](https://github.com/THE-BASILICA)
 
-⌀ @Cannibalistic-Ways-Of-Life 
+⌀ [@Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
 
-⌀ @GothicCowboy 
+⌀ [@GothicCowboy](https://github.com/GothicCowboy)
 
-⌀ @p0staldud3
+⌀ [@p0staldud3](https://github.com/p0staldud3)
+
+⌀ [@PrettyCherub](https://github.com/PrettyCherub)
