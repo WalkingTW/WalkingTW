@@ -4,6 +4,8 @@ Read here! Reminder: Harassment is ILLEGAL.
      
 🏴‍☠️ This account is used for an outlet for problematic/proship alters in our system, not every alter is proship nor accepts proshipping. IF IM SHOWING ONLINE AND YOU'RE IN MY FRIENDLIST, I'M HEAVILY TRUSTING YOU WITH THIS INFORMATION.
 
+🎧 Please note that this account was recomended via professionals as an outlet and a way of healing.
+
 ‼️Triggering topics/wording/pictures such as 𝔤𝔬𝔯𝔢 , 𝔰𝔢𝔩𝔣-𝔥𝔞𝔯𝔪 , 𝔭𝔯𝔬𝔰𝔥𝔦𝔭𝔭𝔦𝔫𝔤 etc. beyond this point! proceed at your own risk‼️
 
 🪽 Follow your own DNI. Because if you go to someone on your DNI list and harrass them, you're the one at fault.
