@@ -12,6 +12,8 @@ Read here! Reminder: Harassment is ILLEGAL.
 
 Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-cannibalism, PTSD, Dyslexia, Tics   + medically reconised / possible disorders (middle of diagnosing)  ; BPD, OSDD/DID, Epilepsy
 
+👽 Names I go by!! Usually friends from this account call me TW, so that's what you can call me!!
+
 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 
 . . . . . . . . Èþïk Lï§† . . . . . . . .
