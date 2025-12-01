@@ -18,11 +18,11 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 . . . . . . . . Èþïk Lï§† . . . . . . . .
 
-⌀ [@Phantomhiveds](https://github.com/Phantomhiveds)
+⌀ [@heartofhope](https://github.com/heartofhope)
 
 ⌀ [@Michael-Afton1983](https://github.com/Michael-Afton1983)
 
-⌀ [@HENRlKSSON](https://github.com/HENRlKSSON)
+⌀ [@GONTlER](https://github.com/GONTlER)
 
 ⌀ [@greenbeanx3](https://github.com/greenbeanx3)
 
