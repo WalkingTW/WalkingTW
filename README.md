@@ -26,7 +26,7 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 ⌀ [@greenbeanx3](https://github.com/greenbeanx3)
 
-⌀ [@dazaku](https://github.com/dazaku)
+⌀ [@durinscara](https://github.com/durinscara)
 
 ⌀ [@THE-BASILICA](https://github.com/THE-BASILICA)
 
