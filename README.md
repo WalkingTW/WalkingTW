@@ -20,6 +20,8 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 ⌀ [@heartofhope](https://github.com/heartofhope)
 
+⌀ [@wingedserpents](https://github.com/wingedserpents)
+
 ⌀ [@Michael-Afton1983](https://github.com/Michael-Afton1983)
 
 ⌀ [@GONTlER](https://github.com/GONTlER)
