@@ -1,3 +1,5 @@
+new counter thing :p -> ![](https://komarev.com/ghpvc/?username=WalkingTW)
+
 Read here! Reminder: Harassment is ILLEGAL.
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
