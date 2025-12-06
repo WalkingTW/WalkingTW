@@ -34,7 +34,7 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 ⌀ [@Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
 
-⌀ [@GothicCowboy](https://github.com/GothicCowboy)
+⌀ [@Gothiccowgirl](https://github.com/Gothiccowgirl)
 
 ⌀ [@p0staldud3](https://github.com/p0staldud3)
 
