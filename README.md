@@ -4,7 +4,7 @@ Read here! Reminder: Harassment is ILLEGAL.
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
      
-🏴‍☠️ This account is used for an outlet for problematic/proship alters in our system, not every alter is proship nor accepts proshipping. IF IM SHOWING ONLINE AND YOU'RE IN MY FRIENDLIST, I'M HEAVILY TRUSTING YOU WITH THIS INFORMATION.
+🏴‍☠️ This account is used for an outlet for problematic/proship alters in our system, not every alter is proship nor accepts proshipping. So when talking to us you might not even be talking to a proship person. IF IM SHOWING ONLINE AND YOU'RE IN MY FRIENDLIST, I'M HEAVILY TRUSTING YOU WITH THIS INFORMATION.
 
 🎧 Please note that this account was recomended via professionals as an outlet and a way of healing and accepting trauma. PLEASE UNDERSTAND
 
