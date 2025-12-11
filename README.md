@@ -32,7 +32,7 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 ⌀ [@durinscara](https://github.com/durinscara)
 
-⌀ [@THE-BASILICA](https://github.com/THE-BASILICA)
+⌀ [@KALININGRAD-OBLAST](https://github.com/KALININGRAD-OBLAST)
 
 ⌀ [@Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
 
