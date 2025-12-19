@@ -18,7 +18,7 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 
 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 
-. . . . . . . . Èþïk Lï§† . . . . . . . .
+. . . . . . . . Èþïk Lï§† . . . . . . . .  (no order)
 
 ⌀ [@heartofhope](https://github.com/heartofhope)
 
