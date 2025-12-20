@@ -43,3 +43,5 @@ Diagnosed with multiple disorders ; Level 2 ASD, Anxiety, Depression, OCD, Auto-
 ⌀ [@PrettyCherub](https://github.com/PrettyCherub)
 
 ⌀ [@voltsys](https://github.com/voltsys)
+
+⌀ [@RozeRedz](https://github.com/RozeRedz)
