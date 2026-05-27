@@ -12,7 +12,7 @@ Read here! Reminder: Harassment is ILLEGAL.
 
 🪽 Follow your own DNI. Because if you go to someone on your DNI list and harrass them, you're the one at fault.
 
-Diagnosed with multiple disorders ; Level 2 ASD, PDA, Anxiety, Depression, OCD, Anorexia Nervosa, Auto-cannibalism, PTSD, Dyslexia, Tics   + medically reconised / possible disorders (middle of diagnosing)  ; BPD, OSDD/DID, Epilepsy
+Diagnosed with multiple disorders ; Level 2 ASD, PDA (apart of the autism diagnosis), Anxiety, Depression, OCD, Anorexia Nervosa, Auto-cannibalism, PTSD, Dyslexia, Tics   + medically reconised / possible disorders (middle of diagnosing)  ; BPD, OSDD/DID, Epilepsy
 
 👽 Names I go by!! Usually friends from this account call me TW, so that's what you can call me!!
 
