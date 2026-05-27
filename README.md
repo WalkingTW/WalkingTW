@@ -24,8 +24,6 @@ Diagnosed with multiple disorders ; Level 2 ASD, PDA, Anxiety, Depression, OCD, 
 
 ⌀ [@wingedserpents](https://github.com/wingedserpents)
 
-⌀ [@Michael-Afton1983](https://github.com/Michael-Afton1983)
-
 ⌀ [@GONTlER](https://github.com/GONTlER)
 
 ⌀ [@greenbeanx3](https://github.com/greenbeanx3)
