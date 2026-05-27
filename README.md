@@ -24,8 +24,6 @@ Diagnosed with multiple disorders ; Level 2 ASD, PDA (apart of the autism diagno
 
 ⌀ [@wingedserpents](https://github.com/wingedserpents)
 
-⌀ [@GONTlER](https://github.com/GONTlER)
-
 ⌀ [@greenbeanx3](https://github.com/greenbeanx3)
 
 ⌀ [@durinscara](https://github.com/durinscara)
@@ -39,9 +37,5 @@ Diagnosed with multiple disorders ; Level 2 ASD, PDA (apart of the autism diagno
 ⌀ [@p0staldud3](https://github.com/p0staldud3)
 
 ⌀ [@PrettyCherub](https://github.com/PrettyCherub)
-
-⌀ [@voltsys](https://github.com/voltsys)
-
-⌀ [@RozeRedz](https://github.com/RozeRedz)
 
 ⌀ [@pizzadotdoggo](https://github.com/pizzadotdoggo)
